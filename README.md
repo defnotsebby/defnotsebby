@@ -1,4 +1,4 @@
-## Hi there 👋
+## My Strawpage is better veiwed on Mobile I'm sorry ! !
 
 <!--
 **defnotsebby/defnotsebby** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

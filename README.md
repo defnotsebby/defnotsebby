@@ -1,5 +1,5 @@
 ## My Strawpage is better veiwed on Mobile I'm sorry ! !
-
+<img src="https://i.pinimg.com/originals/58/e4/e0/58e4e0be44886d181a947ecd152f9d37.gif" width="500" height="250" alt="image">
 <!--
 **defnotsebby/defnotsebby** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

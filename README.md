@@ -1,2 +1,4 @@
 ## I'm extremely anti-social but I promise I'm silly if you get to know me !  ( [💞](https://probsebby.atabook.org/),[🍷](https://open.spotify.com/user/3147nskt6af5f7afhh5hs6z7cuxu?si=0c9f636cb08743c3),[🩸](https://rentry.co/t37c2g2g) )
 fixing this because it DECIDED TO FUCKING BREAAKKUHH. oh em GEEE...
+
+💞 is my Ata, 🍷 is my Spotify, 🩸 is my Rentry.
